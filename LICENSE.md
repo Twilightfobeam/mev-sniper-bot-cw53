@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with top Token Sniper for MEV sniper bot | meme-coin-scanning & new-token-detection, the #1 MEV sniper bot. Includes meme-coin-scanning and
 
 
 
